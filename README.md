@@ -1,2 +1,2 @@
-# Fitnesxia_16-03-25
-Discover the art of crafting a stunning FITNESXIA Gym Website Landing Page with this step-by-step tutorial!
+# Mac's Haus Gym Fitness
+Discover the art of crafting a stunning Mac's Haus Gym Fitness Website Landing Page with this step-by-step tutorial!
